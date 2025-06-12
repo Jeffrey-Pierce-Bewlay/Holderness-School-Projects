@@ -1,2 +1,2 @@
 # Holderness-School-Projects
-High School projects I am especially proud of.
+A selection of high school projects showcasing key skills and academic growth.
